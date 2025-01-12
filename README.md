@@ -1,1 +1,1 @@
-Pixels that are good for your eyes.
+New acct. Making pixels that are delightful for your eyes.
